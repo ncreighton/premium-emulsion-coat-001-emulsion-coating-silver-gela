@@ -1,0 +1,2 @@
+# premium-emulsion-coat-001-emulsion-coating-silver-gela
+Tired of inconsistent prints and a messy workspace where critical recipe notes disappear between coats? Keep every batch repeatable and every chemical measured with a studio planner built for the meticulous craft of emulsion coating and silver gelatin.  This Notion template turns your scattered notebook scribbles, drying timers, and chemical invent
